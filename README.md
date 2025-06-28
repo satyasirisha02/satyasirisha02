@@ -5,6 +5,6 @@
 📚 I'm learning from W3Schools and freeCodeCamp  
 🎯 My goal is to build fun and useful websites!
 
-📫 Reach me at: your.email@example.com  
+📫 Reach me at: your satyasirishadangeti@gmail.com
 🌸 Fun fact: I enjoy colorful notes and cozy coding vibes!
 
